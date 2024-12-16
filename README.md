@@ -1,7 +1,11 @@
 Live Movie Streaming Links
 
 This list is automatically updated.
-Alternatives is also included.
+
+Alternative free streaming platform is also included.
+
+Just create a free account & enjoy.
+
 This is for educational purposes only.
 
 https://fmovies-hd.sbs
